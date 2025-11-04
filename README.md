@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, I'm Ritika Kumari a undergrade👩‍🎓<br>An aspiring software developer👩‍💻<br><br>Let's connect on [linkedln](www.linkedin.com/in/ritika-kumari-connectwme)<br>
+Hi, I'm Ritika Kumari a undergrade👩‍🎓<br>An aspiring software developer👩‍💻<br><br>
 
 
 ## 🌐 Socials:
